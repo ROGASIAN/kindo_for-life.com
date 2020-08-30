@@ -1,1 +1,1 @@
-# kindo_for-life.com
+# kindo_for life.com
